@@ -47,5 +47,3 @@
 - 🌐 Oyun portfolyosu: [itch.io sayfam](https://btevfikakkeser.itch.io/)  
 - LinkedIn / Web sitesi: *(varsa ekle)*
 
----
-
